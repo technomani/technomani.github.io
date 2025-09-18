@@ -1,1 +1,0 @@
-# technomani.github.io
